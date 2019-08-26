@@ -7,7 +7,7 @@
 - [NDTV](https://ndtv.com)
 
 ##  My Famous Images
-- [prabhas](https://www.google.com/url?sa=i&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjZzduImKHkAhVKCKwKHbiTC8EQjRx6BAgBEAQ&url=%2Furl%3Fsa%3Di%26source%3Dimages%26cd%3D%26ved%3D%26url%3Dhttps%253A%252F%252Fwww.facebook.com%252FActorPrabhas%252F%26psig%3DAOvVaw1ZJGCI0ihn7D0eqJ_7KGTt%26ust%3D1566931289159327&psig=AOvVaw1ZJGCI0ihn7D0eqJ_7KGTt&ust=1566931289159327)
+- [prabhas](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjw-L2wmKHkAhVCcq0KHcs3ChwQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.deccanherald.com%2Fsports%2Fcricket%2Fmsd-turns-a-year-older-team-a-bit-wiser-745591.html&psig=AOvVaw12_tYenCzgyDhYLu-K_3Vb&ust=1566931370120764)
 
 ## Links
 
